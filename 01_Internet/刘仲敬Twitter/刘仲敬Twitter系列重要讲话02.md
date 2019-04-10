@@ -1,4 +1,4 @@
-# 刘仲敬Twitter言论合集02（18 Nov 2016~31 Dec 2016）
+# 刘仲敬Twitter系列重要讲话02（18 Nov 2016~31 Dec 2016）
 
 Original text
 
