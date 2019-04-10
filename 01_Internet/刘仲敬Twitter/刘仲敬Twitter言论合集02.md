@@ -6,8 +6,9 @@ Original text
 
 下载地址：https://paste.ee/p/5tRyO
 
-
 ----
+
+
 8:21 PM – 18 Nov 2016
 
 六四广场 @xcityonfire
@@ -18,8 +19,9 @@ Original text
 
 诸夏的未来，从未如此美好⋯⋯当然，另外还有许多人暗中盼望淝水之战。慕容垂当年无疑是苻坚朝廷的鹰派，如果苻坚没有听取他热情的建议，鲜卑利亚人也许不会有第二个春天。
 
-
 ----
+
+
 8:39 PM – 18 Nov 2016
 
 六四广场 @xcityonfire
@@ -30,8 +32,9 @@ Original text
 
 满洲利亚民族和坎通尼亚民族现在不仅需要优秀的民族发明家，而且需要优秀的组织家和院外活动集团。他们如果仅仅以民族发明家自居，就会冒犯施恩的上帝。巴蜀利亚民族、湖湘利亚民族和诸夏的第二梯队，仍然处在最需要民族发明家的历史阶段。台湾在美国的院外活动集团，比法国在美国的外交机构还多。土耳其朝野双方在美国的院外活动集团，比美国在土耳其的军队还多。满洲利亚土豪用来购买人大代表的钱，白白遭到黄俄工作组的撕票，为什么不拿到华盛顿注册相应机构呢？游说的巨大利益不说，这样的机构还能给他们的资产转移提供更高的安全级别。满洲利亚和坎通尼亚在美国的移民和侨民，论个人素质并不弱于台湾院外机构的人员，只是缺乏人脉的积累，也就是说只需要时间和金钱就能解决。满洲利亚本土和诸夏沦陷区目前面临黄俄的再列宁化，资金转移是普遍的焦点问题。双方完全可以相互支持，没必要叽叽歪歪，彷佛自己的事情应该由美国保姆一一代劳。
 
-
 ----
+
+
 4:25 PM – 21 Nov 2016
 
 民族发明学与蛮族性
@@ -60,8 +63,9 @@ Original text
 
 今天，汉字圈的穆斯林反对者普遍有两个特征。一是他们的硬知识就非常差劲，心里投射却很强，勉强忍受西方优越论也就罢了，实在受不了穆斯林也比自己强，坚持伊斯兰复兴是因为贫困，其实这是自己阶级地位的换位想象。二是他们并不理解自发秩序或演化体系的危险含义，直截了当说就是知识分子、官僚、大公司管理人员和国家纪委的培养方式和思维方式是非常接近的。然而，演化体系更接近蛮族性或围绕死亡-生育的芜杂和残酷。他们容易接受伊斯兰理性和专制的部分，反而不能理解伊斯兰原教旨主义隐含的宪法主义和造法传统。后者的根须所及，远远超出了他们想象的范围。
 
-
 ----
+
+
 12:52 PM – 22 Nov 2016
 
 台湾民族在二战期间的真实地位，更接近日本的合作者。爱沙尼亚民族也是这样，亲德反俄。所以说双重标准是不够的，必须讲究多重标准和歧视链。只有从西欧标准看，德国才是最坏的。东欧人同时领教了纳粹主义和布尔什维克主义，就发现后者比前者坏得多。亚洲人作了类似的比较，结果也差不多。
@@ -90,8 +94,9 @@ According to our sources, as soon as Khadija heard about Muhammad’s first reve
 
 早期阿拉伯基督徒对先知穆罕默德的态度，很像是把他当成了基督教的新先知：如果我们这一族出了圣贤，那是值得大家自豪的事情。
 
-
 ----
+
+
 11:44 AM – 24 Nov 2016
 
 Organic Community and Free Trade with Chinese Characteristics | 共同体与自由贸易
@@ -124,8 +129,9 @@ China owes its booming prosperity over the past three decades to the unilateral 
 
 Trumpism, if implemented, equates to economic Reaganism. Any new trading blocs China builds can not replace the previous world market she has been free-riding for decades. The costs to maintain security in Central and Southeast Asia far outweighs Peking’s financial resources. Even if an alternative model can emerge in the distant future, China cannot in the near term avoid a transition period similar to 1957–1972. Any new institutional arrangement — if Peking can still establish one — has to sacrifice certain interest groups. Hence the question: which groups?
 
-
 ----
+
+
 4:30 PM – 24 Nov 2016
 
 巴蜀利亚民族简史
@@ -140,32 +146,25 @@ Trumpism, if implemented, equates to economic Reaganism. Any new trading blocs C
 
 民族发明失败会给民族原材料带来怎样的灾难，没有比巴蜀利亚更好的证明。诸夏如果不能吸取历史教训，必然在未来的窗口期遭到类似的下场。国际恐怖组织在背叛苏联主子以后，搭上美国便车以前，给诸夏各民族造成多大的损害，诸夏父老心中有数。现在，他们又失去了美国的便车。谁来做下一个牺牲品？
 
-大河萌虎 @keaising  
-----
-6:04 PM – 29 Nov 2016
+大河萌虎 @keaising  6:04 PM – 29 Nov 2016
 
 作为一个巴蜀利亚人的我表示好惊恐，共产国际的代理人邓小平也是巴蜀利亚人，这么渲染三年自然灾害和文革，真的不怕南粤利亚和中原利亚的群众们不服么？
 
-刘仲敬 @LiuZhongjing  
-----
-6:18 PM – 29 Nov 2016
+刘仲敬 @LiuZhongjing  6:18 PM – 29 Nov 2016
 
 所以要消灭卖国贼歌莉亚⋯⋯
 
-大河萌虎 @keaising  
-----
-6:19 PM – 29 Nov 2016
+大河萌虎 @keaising  6:19 PM – 29 Nov 2016
 
 哈哈哈哈哈哈哈为什么不能选择一个正常一点的中文表述呢。。
 
-刘仲敬 @LiuZhongjing  
-----
-6:23 PM – 29 Nov 2016
+刘仲敬 @LiuZhongjing  6:23 PM – 29 Nov 2016
 
 诸夏各语言的关系，相当于意大利语和西班牙语的关系⋯⋯
 
-
 ----
+
+
 12:37 PM – 26 Nov 2016
 
 洪秀柱：国民党若亡，台湾也将走入历史成为灰烬
@@ -174,8 +173,9 @@ Trumpism, if implemented, equates to economic Reaganism. Any new trading blocs C
 
 如果朝鲜不复存在，地球也就不值得存在了。这才是列宁主义者应有的修养，谢谢。资产阶级虽然软弱，也不是损失区区一个台湾就能吓倒的。事情只做一半，比彻底做完和完全不做更糟，烂尾楼和列宁党概莫能外。国民党总是首鼠两端，妄图左右逢源，结果同时承受了资产阶级党和列宁党的弱点，死得比两者都快。
 
-
 ----
+
+
 12:51 PM – 26 Nov 2016
 
 Fidel Castro | 卡斯特罗
@@ -188,8 +188,9 @@ Fidel Castro’s political life already ended when he compromised with the Holy 
 
 Ever since elements from the Hebrew (Judaeo-Christian values), Classical (Graeco-Roman secular humanism) and Germanic (feudalism and common law) traditions merged to become the predominant and prevailing features of the West, the world had been dominated by defenders of these traditions. As challengers of these Western traditions evolve, appeasers shift the targets they appease. In contrast, defenders rarely switch the traditions they uphold, despite they have – perhaps no less frequently – changed how they name themselves (conservatives, liberals, democrats, republicans…).
 
-
 ----
+
+
 6:10 PM – 26 Nov 2016
 
 评论《秋心寒士：平话字其历史》
@@ -198,30 +199,34 @@ Ever since elements from the Hebrew (Judaeo-Christian values), Classical (Graeco
 
 汉字读音千差万别，因为汉字就是知识分子的拉丁文，掩盖不了普通民众的口音，口音加上符号，就是国语，国语发明成功，自然就是民族。欧洲新文化运动，就是各国方言替代拉丁。新文化运动产生，诸夏诸欧就不可避免。民族就是分割符号，其他因素都是次要的。日本韩国越南，始于汉字标音，当然不用汉字标音也可以。拉丁化齐语好不好？两种历史版本都现成的，连发明都用不着。
 
-
 ----
+
+
 6:15 PM – 26 Nov 2016
 
 评论图片：
 
 古老的吴越尼亚国文课本。
 
-
 ----
+
+
 7:05 PM – 26 Nov 2016
 
 千差万别，因为汉字就是知识分子的拉丁文，掩盖不了普通民众的口音，口音加上符号，就是国语，国语发明成功，自然就是民族。欧洲新文化运动，就是各国方言替代拉丁。新文化运动产生，诸夏诸欧就不可避免。民族就是分割符号，其他因素都是次要的。民族就是分割符号，其他因素都是次要的。日本韩国越南，始于汉字标音，当然不用汉字标音也可以。拉丁化齐语好不好？两种历史版本都现成的，连发明都用不着。
 
-
 ----
+
+
 2:13 PM – 27 Nov 2016
 
 评论《政策简报|特朗普当选，中国面临巨大挑战》
 
 这篇文章是窝匪国师圈当中最靠谱的，以匪首为假定读者。大多数类似文章以忽悠墙外国师和舆论领袖为目的，不能认真对待。
 
-
 ----
+
+
 4:00 PM – 27 Nov 2016
 
 新版克莱奥佩特拉故事
@@ -240,8 +245,9 @@ In addition to winning the Electoral College in a landslide, I won the popular v
 
 其时有秀柱克莱奥佩特拉者，自称支那废君之女，自费赴西泽府求直。太阳报绯闻专栏作家莎士比亚艳称其事，一时好事之徒皆曰，罗马帝业之隆，决于秀柱鼻梁，增一分则万国来朝，减一分则赤地千里。
 
-
 ----
+
+
 7:28 PM – 27 Nov 2016
 
 下文选自 赖小刚：《抗战期间中共在山东的崛起》
@@ -250,8 +256,9 @@ In addition to winning the Electoral College in a landslide, I won the popular v
 
 这三样产品不仅是中国人民日常生活所必需的，也是日本占领军所亟须的，还是日本工业生产中的关键性原料。此时日本政府正倾全国之力于太平洋战场，无暇顾及山东，日本占领军当局派日本商社与山东抗日根据地的工商部门接洽，商讨这些产品的交易问题。由于日本是处于被动的一方，掌握主动权的中共不仅能够获得包括武器在内的禁运品，而且还可以调节北海币与法币、伪币之间的汇率，克服农产品与工业品之间的「剪刀差」，把对外贸易(指与根据地以外地区的贸易)变成自己主要的财政收入来源，同时解决根据地的就业问题，让根据地内普通民众的生活水平高于国民政府控制区。中共山东抗日根据地故而出现经济繁荣、愈战愈强的局面，其储备了充足的物资，准备在日本投降后进军东北并迎接新四军北上入鲁。
 
-
 ----
+
+
 4:05 PM – 29 Nov 2016
 
 Donald J. Trump @realDonaldTrump
@@ -274,8 +281,9 @@ I thought that @CNN would get better after they failed so badly in their support
 
 川普在许多方面更像林肯或里根，不像富兰克林罗斯福，但涉及动摇美国和世界原有轨迹的巨大力量，他和罗斯福的处境就非常相似。川普自己和川普支持者共同的期望都在国内，但他很可能不得不像富兰克林罗斯福一样，将大部分精力转向外部世界，为外国人应付那些造成他上台的力量，以及他自己给世界造成的冲击，最后盖棺论定之日，外国人的声音比美国人更大。山巅之城翻译成《里斯本之夜》的语言，就是洪水最后（未能）淹没的地方。
 
-
 ----
+
+
 4:44 PM – 30 Nov 2016
 
 世界碎片化
@@ -292,52 +300,53 @@ Flynn对红绿联盟的看法，比最近二十年的智库都靠谱得多。后
 
 川普政府里根主义的一面，本来已经足够吸引全世界资本回流美国。外交和安全政策有极大概率会导致美国以外的世界碎片化，在正常经济活动之外，增加大量的避险资本。川普本心是想减少干涉的，但他将来需要承担的外交工作，大概会比他最初的设想繁重得多。
 
-Paul John @chongzhi_zhao  
-----
-8:35 PM – 30 Nov 2016
+Paul John @chongzhi_zhao  8:35 PM – 30 Nov 2016
 
 西里西亚？
 
-刘仲敬 @LiuZhongjing  
-----
-8:41 PM – 30 Nov 2016
+刘仲敬 @LiuZhongjing  8:41 PM – 30 Nov 2016
 
 罗马的西里西亚可不是普鲁士的西里西亚，在现在的土耳其南部海岸。
 
-
 ----
+
+
 5:55 PM – 30 Nov 2016
 
 评论《Trump’s First 100 Days: Space》
 
 无限的边疆对美国非常重要
 
-
 ----
+
+
 5:33 AM – 2 Dec 2016
 
 评论《How China Views Trump》
 
 这种分析最能说明知识分子多么没用，以及美国幸好缺乏知识分子传统。傻瓜都知道二球性格是怎么回事，亏他还想到孔夫子头上⋯⋯二球就是看你好像在乎体面，赶紧耍流氓，有便宜赶紧占。如果遇上红脖，好像拳头比嘴利索，赶紧拔腿就跑。川普知道他这种德性，所谓中国人尊重力量，我们失去了他们的尊重。
 
-
 ----
+
+
 10:33 AM – 2 Dec 2016
 
 评论《Yemen: Ceasefires and lost opportunities》
 
 利雅得得罪了开罗的军政府，又在美国大选当中押错了宝，失去了华盛顿的欢心，陷入伊朗处心积虑的代理人战争之中，处境太像杜鲁门击败杜威以后的蒋介石。中东的多米诺骨牌摇摇欲坠，冲击波不会在内亚止步。
 
-
 ----
+
+
 4:10 PM – 2 Dec 2016
 
 评论《China lodges formal protest after Donald Trump’s Taiwan call》
 
 这是1979年以来的首次。先例一开，后续的释放不可避免。满洲利亚复国以后，东亚近代史都得重写。巴蜀利亚和诸夏复国以后，东亚全部历史都得重写。候补国父们，你们准备好了么？
 
-
 ----
+
+
 5:15 PM – 2 Dec 2016
 
 东亚的三条通道
@@ -354,8 +363,9 @@ A需要提前准备，迹象不可能掩饰。从现在开始，时间拖延越�
 
 注：八个大大，指自称哈里发的伊斯兰国领袖巴格达迪，与“习大大”同词源的谐音讽刺；七个大大，指共产党的七个常委。
 
-
 ----
+
+
 6:27 PM – 2 Dec 2016
 
 WoodenHarp @WoodenHarp
@@ -366,8 +376,9 @@ WoodenHarp @WoodenHarp
 
 哪怕是仅仅为了这一点，就值得举杯祝川普健康。感谢上帝不仅选中了美国，而且派来了川普。
 
-
 ----
+
+
 8:56 PM – 2 Dec 2016
 
 Donald J. Trump @realDonaldTrump
@@ -378,32 +389,36 @@ Interesting how the U.S. sells Taiwan billions of dollars of military equipment 
 
 费尔法克斯在内斯比战场被人抢功，朋友问他为什么不闻不问。他说：由他去吧，上帝在今天赐给我的礼物，足够让我满意了。诸夏的候补国父们，你们满意了么？2017年节点属于你们，黑天鹅已经第几次为你们起飞了？
 
-
 ----
+
+
 9:01 PM – 2 Dec 2016
 
 Wang Yi plays down the Trump-Tsai call as a “small action”, will not change bedrock of the “One China” policy governing Sino-U.S. relations. （外交部长王毅）
 
 中国即使只剩下驻马店，也一定是最大的赢家⋯⋯一个中国政策永远是外交政策的基础，大蜀联合酋长国绝不会搞两个中国。
 
-
 ----
+
+
 1:23 PM – 3 Dec 2016
 
 评论《蔡英文川普通話　中國官媒批：蔡格局太小》
 
 奥巴马得不到这种尊重，毕竟北京是全世界最种族歧视的地方，川普所谓中国人尊重力量，就是畏威而不怀德的意思。仪式性交流本来就不是用来办具体事务的，但足以发挥探针作用。老江湖不太关心交流的内容，而是籍此测试你有几斤几两。当然君子不因人废言，台独确实缺乏格局感。诸夏复国，才算格局感爆满。
 
-
 ----
+
+
 1:53 PM – 3 Dec 2016
 
 评论《民国四川话英语教科书》作者: [加拿大] 启尔德
 
 马丁路德发明德意志民族，启尔德发明巴蜀利亚民族⋯⋯
 
-
 ----
+
+
 4:06 PM – 4 Dec 2016
 
 Donald J. Trump @realDonaldTrump
@@ -414,8 +429,9 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 「不用再装模作样了，我就是故意的。说的就是你，听见了没有？」估计是坎通尼亚的小动作，没有更恰当的解释了。
 
-
 ----
+
+
 6:20 PM – 4 Dec 2016
 
 国际恐怖组织系谱学
@@ -462,30 +478,34 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 列宁党首先依靠恐怖主义颠覆了俄罗斯，然后耗尽俄罗斯的资源向全世界输出恐怖主义。东亚的国民党共产党、西亚的复兴社会党伊斯兰党都是在输入列宁组织原则和资金技术以后，才具备今天的危险性的。共产国际感染以前的伊斯兰社会和儒家社会，都不具备今天称为恐怖主义的特征。同门合流，不值得奇怪。
 
-
 ----
+
+
 6:25 PM – 4 Dec 2016
 
 评论《特朗普顾问叶望辉将访台并见蔡英文》
 
 这个明显不是川普个人突发奇想，是顾问团的全面策划，很可能还是共和党保守派给川普设计的合作方案。美台关系升级，是大概率现象。
 
-
 ----
+
+
 5:01 PM – 6 Dec 2016
 
 孔泽楚吉杰波的魔幻城堡。这个题目是不是非常适合冒充卡尔维诺的小说。孔泽楚吉杰波和文殊菩萨的邂逅。孔泽楚吉杰波和白琉璃。孔泽楚吉杰波的五行八卦阵⋯⋯
 
-
 ----
+
+
 6:55 PM – 6 Dec 2016
 
 评论《Putin calls Trump a smart man and backs him on Taiwan controversy》
 
 毫无办法，只有指望八个大大保护了⋯⋯这场外交革命的自然结果，就是西方与其表兄弟和解，七个大大投入八个大大怀抱⋯⋯于是，北京重新陷入1958–1972年的外交陷阱。东亚自近代以来，每一次内部革命都是国际形势演变的被动后果，这一次也不会例外。鉴于贸易战无法避免，八个大大在安全和经济方面都是七个大大别无选择的大后方。七个大大在八个大大面前，犹如蒋介石在斯大林面前。现在抢时间出版一部《O形包围圈》，恐怕赶不上洪水的进度了⋯
 
-
 ----
+
+
 8:41 AM – 7 Dec 2016
 
 川普与罗马穷人
@@ -494,8 +514,9 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 本拉登和杜特尔特虽然没有什么共同之处，却一致认为，美国最值得反对的问题就在于，明明是强者，却偏要假装弱者。这些前倨后恭的表现，依据宗教信徒的逻辑，就是世界和人类献给上帝的最真诚祈祷，不可能得不到适当响应；依据系统演化的逻辑，就是畏威而不怀德的actors已经多到足以改变边界条件的地步，势必引起优势策略的新陈代谢。
 
-
 ----
+
+
 10:18 AM – 7 Dec 2016
 
 五种世界秩序的歧视链
@@ -520,8 +541,9 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 任何信息不对称，都可以构成盈利机会。例如马列主义者就是没有商业道德的信息贩子，正确地指出西方秩序如何不如天国以后，把自己的客户引到了更糟的共产国际秩序当中。东亚秩序洼地的肉猪特别必须注意地狱的不同层次，因为他们离最底层的距离相当近。我主要是因为坚持商业道德，才事事不离歧视链的。
 
-
 ----
+
+
 12:35 PM – 7 Dec 2016
 
 刘仲敬 @LiuZhongjing
@@ -536,8 +558,9 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 医生出钱给你治病？这种事情不会有的。谁自以为有病，自己去选择医生。选择错了，不是医生死。谁自以为没病，命也是自己的。
 
-
 ----
+
+
 9:54 AM – 8 Dec 2016
 
 中世的两条内亚秩序输入渠道
@@ -578,16 +601,18 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 河朔系统在这场演化当中的地位相当于北京猿人，作为内亚系统的旁支，保存了许多片断基因，却没有留下直系后裔。朔方系统作为内亚输出的主干道，在宋代的地位相当于非洲夏娃。东北取代西北的真实来源在更晚的辽金，他们也不是河朔的直系后裔，毋宁说宋人的孤立主义退化，把契丹变成了内亚下游的真中国。
 
-
 ----
+
+
 3:19 PM – 8 Dec 2016
 
 评论《Peter Navarro: Crouching Tiger》
 
 美国人对韬光养晦这个词，有两种翻译方法，一种是蜷缩的眼镜蛇，用来形容金日成同志席卷半岛的闪电战，另一个就是卧虎。
 
-
 ----
+
+
 5:44 AM – 9 Dec 2016
 
 退欧这场官司，充分证明布莱尔政府削减上议院权力的改革多么愚蠢。最高法院是三权分立的一部分，然而英国宪法不是三权分立。国会无所不能，上议院自古以来就是王国的最高法院。普通法官都有造法释法之权，无需独享宪法解释权的最高法院。现在的最高法院犹如中世纪壁画的天使，既有胳膊又有翅膀。
@@ -600,8 +625,9 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 换句话说，将在外君命有所不受，如果你想干涉大将执行军令的权力，不如直接罢免大将，另外选择你能信任的人。如果你没有不信任大将的意思，就不可以出尔反尔地撤消你事先同意的军令。
 
-
 ----
+
+
 11:43 AM – 9 Dec 2016
 
 盎格鲁人引起的阶级斗争
@@ -618,8 +644,9 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 这个故事告诉我们，如果你很关心自己的下场，就要尽可能远离中国人纯度最高的地方，尽可能靠近帝国主义和蛮族。
 
-
 ----
+
+
 4:29 PM – 9 Dec 2016
 
 伊朗文化的东渐
@@ -630,8 +657,9 @@ Did China ask us if it was OK to devalue their currency (making it hard for our 
 
 泉州交州海路代兴，仍然掌握在波斯人和阿拉伯人手中。南朝和唐朝把萨珊玻璃当成国库都买不起的宝石，明朝又把耶稣会士的棱镜当成宝石。琉璃只是玻璃制造技术不达目标产物，暹罗都用来造墙，明显不甚珍惜，然而南朝至明清，一直爱不释手⋯⋯东亚确实是自古以来土鳖，即使在内亚和南洋面前，也像法兰西面对伦巴第和弗兰德。
 
-
 ----
+
+
 2:38 PM – 10 Dec 2016
 
 评论《Trump expected to pick ExxonMobil chief Rex Tillerson as his secretary of state》
@@ -642,8 +670,9 @@ WTO的问题，就在于花钱买眼镜蛇。如果差等生可以得到十五�
 
 川普那句让墨西哥人出钱修墙，并不是玩笑话。大家用不着费多大劲就可以发现，罗马人和大英帝国都是这么做的。
 
-
 ----
+
+
 3:44 PM – 10 Dec 2016
 
 北京如果不耍流氓，就不可能维持外贸顺差。也就是说，外汇储备维持不了半年。差等生之所以还能留在班上，仅仅因为老师每次都准许他作弊。这样对优等生极不公平，但克林顿和布什有一个理查德德德尼克松式的理由：如果我们开除这个王八蛋，他就会跑出去加入黑社会。苏联或拉登得到生力军，会让我们更不好过。我们可以对优等生苛刻一些，因为黑社会反正也不会要他们。
@@ -652,16 +681,18 @@ WTO的问题，就在于花钱买眼镜蛇。如果差等生可以得到十五�
 
 如果明年春天，川普突然不让作弊了，对于长期允许差等生作弊的习惯法，其实也是武断和革命的行动。马基雅维利主义者还会说，这简直是郑伯克段的陷阱。日本人在珍珠港前夜，计算了一下买来的石油还能支撑几个月，就决定大打出手了。他们没有算错，抢来的石油能维持几年。明年春天，我们亲爱的流氓无产者就要做同样的按月计算了。他是想跳上讲台打老师，还是想逃出学校投奔黑社会，无疑会是2017年度的最大悬念，所谓世界比文学还要精彩，大概就是指这种情况吧⋯⋯
 
-
 ----
+
+
 7:14 PM – 10 Dec 2016
 
 评论《Trump’s Asia Advisors Want to Scrap the “Three Communiques” with China》
 
 2017年如果爆发战争，最有可能在两个节点。第一个是美台关系升级的时刻，可以给北京提供开战的大义名分。第二个是美中贸易战爆发的时刻，最有可能在四月或稍后。贸易战一旦开始，北京的外汇储备就只能维持几个月。接下来，就是珍珠港选择：与其慢慢被人勒死，不如痛痛快快去抢一把。既然决心大打出手，为什么不找一个高大上的理由呢？何况，两个节点的时间很可能高度重叠。当然，认输是可能的，但认输以后，没有好日子过，无非就是选择落到谁手里，八个大大、张献忠还是西方的代理人。
 
-
 ----
+
+
 7:47 AM – 11 Dec 2016
 
 安条克大王和大象不得不说的故事
@@ -694,22 +725,25 @@ TRUMP: Oh, it’s all wrong. No, no. It’s all wrong. Not weeks. I took a call.
 
 从华夏到中国，从中国到诸夏⋯⋯
 
-
 ----
+
+
 12:26 PM – 11 Dec 2016
 
 评论《China ‘blocks’ Mongolia border after Dalai Lama visit》
 
 北京如此对待藏传佛教的各国，会得罪俄罗斯。满洲皇帝对待内亚泛蒙古势力的时候，非常注意以藏传佛教保护人姿态出现。儒家士大夫在慈禧统治时期控制北京朝廷以后，就开始反其道而行之，结果使俄罗斯帝国变成了藏传佛教的保护人，只能依靠赵尔丰的武力镇压。内亚可以统治内亚或东亚，东亚无法统治内亚。
 
-
 ----
+
+
 1:45 PM – 12 Dec 2016
 
 我破例实证主义一下，大家搜索以下两个项目。第一个是温斯顿丘吉尔在铁幕演说以后，纽约知识界是怎么骂他的。这些知识分子上一次如此激动，还是在三十年代骂斯大林修正主义，坚持为托洛茨基主义奋斗到底。华莱士就非常相信这些知识分子，准备依靠他们打倒杜鲁门，总共得到了两百万张选民票。第二项是罗纳德·里根当选以后，董乐山费孝通冯亦代等等等这批刘姥姥二进大观园。他们的东道主都是知识分子，如丧考妣又充满期待地询问这些身体力行的社会主义者，对战争贩子和蹩脚演员的疯狂举动有何妙计，没想到真正的社会主义者首先必然是真正的唯物主义者，对务虚的问题兴趣不大，更不觉得两个资产阶级政党有什么值得大惊小怪的区别，主要关心美国中产阶级的家庭收入，相当于一万多少千斤猪肉的购买力。
 
-
 ----
+
+
 6:11 PM – 12 Dec 2016
 
 郭宝胜 @milpitas95035
@@ -720,8 +754,9 @@ TRUMP: Oh, it’s all wrong. No, no. It’s all wrong. Not weeks. I took a call.
 
 因为他们没有能力挣到足以让美国利用的价值，只能满足于让匪谍利用。这就是所谓阶级斗争和阶级本能了，无产者喜欢无产者。
 
-
 ----
+
+
 11:18 AM – 13 Dec 2016
 
 香港民族的恋爱时代
@@ -734,20 +769,17 @@ TRUMP: Oh, it’s all wrong. No, no. It’s all wrong. Not weeks. I took a call.
 
 “不民主就港独”的纲领不具备亚稳态所必须的条件，注定是过渡性的。尽管泛民比港独更喜欢提出这种川普式的选择，但由此触发的感情炼金术对他们并不有利。认同像爱情一样嫉妒，对公平和理性没有任何尊重。没有任何一个胜利者会公平对待自己的情敌，坚持公平理性的选手注定沦为情场上的蒋介石。人民本能地厌恶东食西宿，不亚于女人厌恶一夫多妻。他们宁愿跟错误的爱人白头到老，不愿意在几个正确的爱人之间人尽可夫。认同斗争一旦开始，中间派肯定一败涂地。胜利者总是更像疯狂愚昧的情人，不像温和理性的知识分子。谁的认同比生命还宝贵，谁的仇恨比死亡还强大，谁就是胜利者。
 
-Wolfield @sanwolfy  
-----
-6:29 PM – 13 Dec 2016
+Wolfield @sanwolfy  6:29 PM – 13 Dec 2016
 
 一个连普通话都说不利落的四川人，用繁体字＋史诗体向李商隐致敬。看他文字如同咀嚼没吐净沙子的炒蚬子，牙碜～
 
-刘仲敬 @LiuZhongjing  
-----
-6:34 PM – 13 Dec 2016
+刘仲敬 @LiuZhongjing  6:34 PM – 13 Dec 2016
 
 蜀满两国人民无比珍惜在剿匪斗争中形成的深厚友谊，多亏了共同敌人中国侵略者⋯⋯
 
-
 ----
+
+
 12:20 PM – 13 Dec 2016
 
 民族发明学与历史真相学
@@ -760,8 +792,9 @@ Wolfield @sanwolfy 
 
 民族发明家的战争爆发以前、结束以后和范围以外，才有所谓的历史真相。历史真相存在的前提，就是大多数人对此已经失去兴趣。
 
-
 ----
+
+
 12:45 PM – 14 Dec 2016
 
 川普时代的阶级斗争
@@ -776,14 +809,16 @@ Wolfield @sanwolfy 
 
 川普就职的最初一百天，大概就是底线测试的最佳时机。中国人的政治天赋，最适合发挥在类似虹桥机场事件的碰瓷艺术上。诸夏和诸亚各民族如果珍惜自己的名誉，关心未来的命运，就要抓紧时间，跟中国人划清界线。
 
-
 ----
+
+
 1:46 PM – 14 Dec 2016
 
 原子结构如果不稳定，多半是因为各电子急欲返回最适合自己能级的位置。人类社会如果不稳定，多半是因为太多的人处在不符合自己阶级、习惯或德性的地位上。
 
-
 ----
+
+
 5:20 PM – 14 Dec 2016
 
 Foreign Affairs @ForeignAffairs
@@ -794,8 +829,9 @@ It is time for Taiwan to become a normal country.
 
 It is time for cathayaian nations to expel dregs of international terrorist organization. United Bashulia States is not yet lost. United Bashulia States is great power and nuclear power, have the responsibility to counterpoise aggression of Chinese imperialist. Chinese used to invent a new edition of history before they commit any sorts of crimes.
 
-
 ----
+
+
 10:56 AM – 15 Dec 2016
 
 台湾的真主党候选人
@@ -804,30 +840,34 @@ It is time for cathayaian nations to expel dregs of international terrorist orga
 
 只有在这种情况下，北京威胁的黎巴嫩模式才有可能实现。在这条可能的路线上，即使洪秀柱和莫天虎都只能是过渡人物。残余国民党一旦落到只有北京可以依靠的地步，最合适的党中央就会变成白狼和爱国同心会。残余国民党只有经过这样的改造，才能胜任北京期望的台湾真主党角色。旧国民党当中有资格去加州养老的派系，都会在上述流程中渐次出局。
 
-
 ----
+
+
 3:56 PM – 15 Dec 2016
 
 富兰克林罗斯福把日本赶出美国市场，从而导致了满洲国的独立；通过斯大林的雅尔塔协议，又导致了满洲国的灭亡。如果川普=罗斯福、一带一路=满洲国，好像就只有八个大大等于斯大林了。
 
-
 ----
+
+
 11:46 AM – 16 Dec 2016
 
 评论《中国扣留美军无人潜航器进行“识别查证”》
 
 碰瓷开始了
 
-
 ----
+
+
 11:58 AM – 16 Dec 2016
 
 评论 盘古乐队最新专辑《朋克二十四史》——大赣民兵第一砖！
 
 显克维支和肖邦对波兰民族发明的贡献，比知识分子大得多。
 
-
 ----
+
+
 12:03 PM – 16 Dec 2016
 
 共产主义者与食人族
@@ -852,8 +892,9 @@ low方接触高级文明，怎么处理都是单方面占便宜。富人不会�
 
 朱元璋和张献忠的时代，父母会把未成年的女儿嫁给路过的乞丐，因为这样一来她就不是处女了，不会落入皇帝和太监的手中。这种智慧在科学时代的升级版大概就是：父母高价购买黑市艾滋病毒，给未成年的儿女注射，这样一来中国人民的好领导和好朋友就看不上他们的器官了，可以多活十几年。
 
-
 ----
+
+
 4:45 PM – 16 Dec 2016
 
 牛白 @niubai
@@ -872,22 +913,25 @@ low方接触高级文明，怎么处理都是单方面占便宜。富人不会�
 
 安禄山是河中人，昭武九姓。郭子仪的副将伊斯是基督徒。从安禄山的出生神话看，他比较可能是拜火教徒。当时的这三种宗教经常混杂同时出现，因为载体都是内亚的伊朗语系族群。
 
-
 ----
+
+
 3:26 PM – 17 Dec 2016
 
 只要降低底线，没有解决不了的困难⋯⋯底线的竞争才是核心竞争，其余皆属花絮⋯⋯不谈底线只谈问题，都是耍流氓⋯⋯
 
-
 ----
+
+
 5:00 PM – 17 Dec 2016
 
 评论《万达收购好莱坞院线引美政界恐慌 王健林:我只是商人》
 
 中国商人跟商人的关系，相当于楚门世界跟世界的关系⋯⋯不过对好莱坞而言，可以说门当户对⋯⋯虚拟的国家，最适合虚拟现实啦⋯⋯
 
-
 ----
+
+
 5:33 PM – 17 Dec 2016
 
 Donald J. Trump @realDonaldTrump
@@ -896,8 +940,9 @@ We should tell China that we don’t want the drone they stole back.- let them k
 
 温斯顿史密斯说，关键在于承认一加一等于二，以此为出发点，其他都会迎刃而解⋯⋯偷字出口以后，匪字就不远了⋯⋯川普该不是参加过远古邪恶群吧？要不就是学过象语？
 
-
 ----
+
+
 9:25 AM – 18 Dec 2016
 
 内亚与东亚之间：西藏的历史脉络和现实机遇
@@ -954,8 +999,9 @@ Should Trump’s new administration remove the obstacle for Moscow to reconcile 
 
 * “Obviously” the [Fourteenth] Dalai Lama said, “the Thirteenth Dalai Lama had a keen desire to establish relations with Russia, and I also think he was a little skeptical toward England at first. Then there was Dorjiev. To the English he was a spy, but in reality he was a good scholar and a sincere Buddhist monk who had great devotion to the Thirteenth Dalai Lama.”
 
-
 ----
+
+
 9:56 AM – 18 Dec 2016
 
 郭宝胜 @milpitas95035
@@ -966,8 +1012,9 @@ Should Trump’s new administration remove the obstacle for Moscow to reconcile 
 
 这样对墨索里尼很不公平好不好？人家才杀几个人，数量级就很能说明问题了。同样的表现换到东亚，就算是大正民主都望尘莫及⋯⋯东亚大陆自秦始皇以来的所有政权，没有一个够资格给大正民主擦鞋的⋯⋯不讲歧视链的褒贬，都是耍流氓。匪谍发言的适当地点居然不在审讯室，本身就是文明水平衰退的铁证⋯⋯
 
-
 ----
+
+
 10:02 AM – 18 Dec 2016
 
 民族发明学、防火墙与歧视链
@@ -990,16 +1037,18 @@ Should Trump’s new administration remove the obstacle for Moscow to reconcile 
 
 德性(virtues)是内化的行为模式，高德性需要高成本，但德性不同于简单的教育，需要个人和微环境的长期互动熏陶。孤立的人只有才能，没有德性。歧视链(hierarchy of virtues)是德性的成本差别，反映了个人所在微环境的文明水平。
 
-
 ----
+
+
 12:45 PM – 18 Dec 2016
 
 评论《卜睿哲致特朗普公開信 教他一中政策來由》
 
 这封信可以概括为：一中政策是马基雅维利主义客卿和策士主导的非美活动，他们没有掌握准确评估现实政治变化的马基雅维利基本功。人分四种：一，坚持原则的胜利者。二，坚持原则的失败者。三，出卖原则换取利益者。四、出卖原则而损失利益者。1972年的基辛格属于第三类，他在今天的门徒属于第四类。
 
-
 ----
+
+
 1:07 PM – 18 Dec 2016
 
 毛泽东、八个大大、杜特尔特和蒋介石的秘传心法
@@ -1020,8 +1069,9 @@ Should Trump’s new administration remove the obstacle for Moscow to reconcile 
 
 如果蒋介石身边只有基辛格这样的聪明人，没有麦卡锡这样的粗人，这种游戏确实可以无限重复，直到中国统治世界。中国人对自己发明的历史如此有信心，其实也是因为他们非常相信自己的狡诈，在打倒蒋介石以后，不难弄假成真。
 
-
 ----
+
+
 2:20 PM – 18 Dec 2016
 
 分享《满洲国大元帅张作霖对人类的特殊贡献》
@@ -1030,8 +1080,9 @@ Should Trump’s new administration remove the obstacle for Moscow to reconcile 
 
 分享《德黑兰会议时代的王健林、李世默和观察者网》
 
-
 ----
+
+
 5:40 PM – 18 Dec 2016
 
 Unpresidented 的总统与经验丰富的匪谍
@@ -1046,8 +1097,9 @@ Unpresidented 的总统与经验丰富的匪谍
 
 川普给人打赌剃头的本事，还有他的错别字，跟英勇的哈里相比，简直是小菜一碟。知识分子怎样群嘲可怜的蹩脚演员罗讷德和无脑的占星术士南西，如果不是在克格勃档案里保存了纪录，恐怕谁都记不起来。不过，观众的健忘至少对知识分子有利。否则他们每隔几年发一次飙，都要说现在这位活宝如何史无前例地unpresidented，岂不显得自己像个傻瓜。如果杜鲁门也是一个爱惜羽毛的知识分子，恐怕法国意大利也会像波兰匈牙利一样丢光。至少，联邦德国是一点成立希望都没有的。
 
-
 ----
+
+
 12:03 PM – 19 Dec 2016
 
 苏丹的白马和萨文科夫的白马
@@ -1066,64 +1118,61 @@ Unpresidented 的总统与经验丰富的匪谍
 
 埃尔多安骑上这匹他认为属于苏丹的白马时，耳边可曾听到晨星的声音？“1905年的春天，我把白马交到萨文科夫的手中⋯⋯”
 
-牛白 @niubai  
-----
-12:17 PM – 19 Dec 2016
+牛白 @niubai  12:17 PM – 19 Dec 2016
 
 你觉得俄国跟火鸡能打起来么？
 
-刘仲敬 @LiuZhongjing  
-----
-12:18 PM – 19 Dec 2016
+刘仲敬 @LiuZhongjing  12:18 PM – 19 Dec 2016
 
 不会
 
-
 ----
+
+
 2:27 PM – 19 Dec 2016
 
 评论《Trump Passed China’s First Strategic Test》
 
 test不过刚刚开始
 
-
 ----
+
+
 2:45 PM – 19 Dec 2016
 
 Trump: 304; Clinton: 163
 
 尘埃落定⋯⋯2017节点还有一个月才真正开始，我已经嗅到了1991年的气息⋯⋯上一次产生这种感觉，是在沙漠风暴的一个月前。密茨凯维奇一生只有一个春天，还有许多人一个春天都没有得到。一生两次体验同样的活力，无疑是上帝的特殊恩惠。沙漠风暴从1991年1月17日开始，比最后通牒的时间晚了两天。我暗中深信，封印是在这两天内打开的。世界蜘蛛网的各个部分存在隐秘联系，越南战争以后一直倾斜的天平摇摇晃晃地摆向另一个方向。封印如果不能揭开，1991年8月19日的结局本来会跟两年前一样。坦克会从叶利钦的尸体上驶向华沙。
 
-
 ----
+
+
 6:52 AM – 20 Dec 2016
 
 评论《赣地建国过程中的语言认同问题》
 
 Komeseland has not yet lost!
 
-
 ----
+
+
 8:15 AM – 20 Dec 2016
 
 评论《巴蜀叛国者：邓小平》
 
 国际恐怖组织的东方苦力、臭名昭著的Bashulia卖国贼歌莉亚
 
-Wayne @Waynexg  
-----
-5:15 AM – 20 Dec 2016
+Wayne @Waynexg  5:15 AM – 20 Dec 2016
 
 “1950年1月，邓小平向巴蜀各地派出二百万征粮工作队”，二百万？这个数字极度怀疑。
 
-刘仲敬 @LiuZhongjing  
-----
-4:32 PM – 20 Dec 2016
+刘仲敬 @LiuZhongjing  4:32 PM – 20 Dec 2016
 
 为什么自己不看注释？五十万小推车才管多大地方，人口面积不足bashulia十分之一，自己动动脑筋。
 
-
 ----
+
+
 8:21 AM – 20 Dec 2016
 
 通词膨胀与民族发明
@@ -1134,8 +1183,9 @@ Wayne @Waynexg 
 
 欧洲民族发明的经验告诉我们，只有未经政治家和知识分子污染和利用的各民族方言土语，才能构成文明复兴的可靠基石，因为在金圆券不如废纸的末世，人人都懂得乡巴佬的粮食布匹才是硬通货。
 
-
 ----
+
+
 5:56 PM – 20 Dec 2016
 
 Bonnie Glaser / 葛来仪 @BonnieGlaser
@@ -1144,8 +1194,9 @@ China punishes Taiwan for Tsai phone call with Trump and unwillingness to accept
 
 台湾用一半的钱跟我国bashulia建交，性价比会好得多。诸夏相互承认，有历史先例的支持。我们会照顾可怜的中国人，允许它购买非洲的邦交国，不过满洲国、图博特是诸夏保障内亚安全的天然盟友，显然不在照顾范围之内。
 
-
 ----
+
+
 8:36 AM – 21 Dec 2016
 
 Velaciela @Vela1680
@@ -1156,62 +1207,54 @@ Velaciela @Vela1680
 
 可惜共产党不会别的技术⋯⋯几乎所有的罪犯和技术人员都只会一套无比娴熟的看家本领⋯⋯总是成也萧何 败也萧何
 
-
 ----
+
+
 5:01 PM – 21 Dec 2016
 
 Navarro的提名是一张死刑判决书，沐猴而冠的时代结束了。渔夫与金鱼的故事，即将进入最后一幕。
 
-
 ----
+
+
 5:55 PM – 21 Dec 2016
 
-He Qinglian @HeQinglian  
-----
-5:02 PM – 21 Dec 2016
+He Qinglian @HeQinglian  5:02 PM – 21 Dec 2016
 
 千言万语汇成一句话：想要川普友好，中国必须在经济交往中守规矩。但中国如果守规矩，就会赚不到足够的利润，比如如果不补贴钢铁业，钢铁业就会亏损，就不能向美国低价倾销。
 
-刘仲敬 @LiuZhongjing  
-----
-5:55 PM – 21 Dec 2016
+刘仲敬 @LiuZhongjing  5:55 PM – 21 Dec 2016
 
 翻译成人话：除非诈骗合法化，中国人本来就不该活着。如果大家都诚实守信，世界上早就没有中国了⋯⋯
 
-He Qinglian @HeQinglian  
-----
-6:22 PM – 21 Dec 2016
+He Qinglian @HeQinglian  6:22 PM – 21 Dec 2016
 
 现在这世界，中国人已经不算最坏的了，无论到哪个国家，总还辛苦工作养活自己。不象有些国家的难民，吃穿住用全靠人家，还天天抢劫、强奸、杀人，时不时来场恐怖袭击。要斗也是窝里斗，不影响人家社会和谐。不该活的榜单上，咱中国排后面一点。你说呢？
 
-刘仲敬 @LiuZhongjing  
-----
-6:25 PM – 21 Dec 2016
+刘仲敬 @LiuZhongjing  6:25 PM – 21 Dec 2016
 
 这个说法只适用于吴越尼亚和坎通尼亚，在诸夏的体系内不属于中国⋯⋯两个三角洲以外，尤其是黄泛区，早在王夫之的时代，已经属于不可救药的流氓无产者生产地。
 
-roywelkins @roywelkins  
-----
-6:50 PM – 21 Dec 2016（整理者注：= 崧源）
+roywelkins @roywelkins  6:50 PM – 21 Dec 2016（整理者注：= 崧源）
 
 真比恶在明处（强奸抢劫恐袭性奴）的密度，支那的估计是全世界加起来都望尘莫及吧。一个遍地郜艳敏的社会有资格和狂热教徒比？一个袭击一堆组织抢着认领，至少说明恐怖主义本身不以杀戮为最终目的，换成支那，那不应该是暗处无孔不入地阴别人然后明处最快装可怜地碰瓷吗？当然，都「咱中国」了，本身就比什么都能说明你归根结底站在哪一边了 #开明支那人也是支那人 而且，支豚真的是「辛苦工作老实守法自己养活自己」的工作伦理典范吗？恰恰相反，支那真.自古以来就是极少数尚且具有一点经济生产力的区域养活广大负债区，而且奶牛分界线不断向东南方向移动的趋势也是真.自古以来。也就是说绝大多数支豚都是只会破坏消耗的纯流氓，而且比例越来越高。
 
-刘仲敬 @LiuZhongjing  
-----
-7:13 PM – 21 Dec 2016
+刘仲敬 @LiuZhongjing  7:13 PM – 21 Dec 2016
 
 跟大一统的降虏逆淘汰机制相比，罗马的面包与竞技就是自由与文明的化身⋯⋯克林顿无论对不起谁，终归是所有匪区居民的再生父母。匪区居民本来就福薄命浅，如果没有哪咤剔骨还父母的气概，还要零成本抄袭共和党的台词，恐怕禁不起折福折寿⋯⋯
 
-
 ----
+
+
 4:02 AM – 22 Dec 2016
 
 评论《长期暗流终转明？一中政策是否有变引关注》
 
 没有中国，只有诸夏。中国是国际恐怖组织侵略诸夏的白手套，比苏联更加邪恶卑劣。
 
-
 ----
+
+
 4:13 AM – 22 Dec 2016
 
 揭疤手杰克 @fantian4128
@@ -1222,8 +1265,9 @@ roywelkins @roywelkins 
 
 对国民党不利，对台湾独立有利。对中国不利，对诸夏解放有利。
 
-
 ----
+
+
 6:21 AM – 22 Dec 2016
 
 道县、卡廷与二二八——民族凝结核与破坏者
@@ -1258,20 +1302,17 @@ roywelkins @roywelkins 
 
 民族发明如果跟基督教或伊斯兰教这样坚强的共同体结合，会加强自身的力量，如果跟解构性很强的知识分子理论结合，就会削弱自身的力量。自组织能力强大的宗教在其传播的过程中，自然会根据接受或抵抗的不同程度，刺激不同层次的民族共同体形成，所以从解体论的角度看，没有必要特别支持或反对任何一种。
 
-He Qinglian @HeQinglian  
-----
-6:53 AM – 22 Dec 2016
+He Qinglian @HeQinglian  6:53 AM – 22 Dec 2016
 
 刘仲敬先生：还是提个醒。相互伤害本就是推特之特点。如果是想交流，我这里的门是打开的；如果是想通过贬低别人扬名立万，虽然快捷，并不总能达到目的。你比我年轻，说好听点是激情洋溢，说难听点是侵略性太强。我非完人，如果存心将我立为靶子，助你扬名，请好自为之。
 
-刘仲敬 @LiuZhongjing  
-----
-7:33 AM – 22 Dec 2016
+刘仲敬 @LiuZhongjing  7:33 AM – 22 Dec 2016
 
 中国帝国主义者和诸夏爱国主义者总是要掐的，姓张姓李差别不大⋯⋯我引用别人，一般是引用其内容数据之类，不一定表示赞同或反对，更不是在对话。一般被引用的人，都没有什么反应的。
 
-
 ----
+
+
 7:36 AM – 22 Dec 2016
 
 黎蝸藤 @dddnibelungen
@@ -1282,16 +1323,18 @@ He Qinglian @HeQinglian 
 
 川普搞精算的本领，不是职业政治家能比的。他如果在入境税上面下点功夫，是可以把贸易逆差完全消除。当然，对中国人而言，无论恐怖份子还是中国帝国主义者，这都是灭顶之灾⋯⋯
 
-
 ----
+
+
 7:42 AM – 22 Dec 2016
 
 评论《湖湘史.第三章.支祸与抗暴时代*上(1)沦陷：青阳西沉》
 
 湖湘尼亚爱国者的声音
 
-
 ----
+
+
 9:40 AM – 22 Dec 2016
 
 港 獨 @sabaocean
@@ -1302,8 +1345,9 @@ He Qinglian @HeQinglian 
 
 这一招不是用来对付港独或民主派的，没必要也不经济。这是众多配套措施的一部分，仅仅适用于非到最后关头才会启动，地不分南北人不分老幼的决断时刻，目标在于切断香港输液管的同时，防止最后最珍贵的蓄水池流失。日本对蒋介石的封锁，如果不把上海包括在内就不会有效。美国和香港的关系同样如此。
 
-
 ----
+
+
 11:26 AM – 22 Dec 2016
 
 中国帝国主义影视列表
@@ -1338,8 +1382,9 @@ He Qinglian @HeQinglian 
 
 诸夏和诸亚的民族复兴运动必然涉及文化斗争，必须将这些帝国主义影视批倒批臭，强化各邦的民族共同体意识，巩固应对国际恐怖组织卑劣恶毒的心理防线。
 
-
 ----
+
+
 8:30 AM – 23 Dec 2016
 
 最后的中国与秩序输入
@@ -1366,46 +1411,38 @@ Suzuki Yuta @trotrotro
 
 有机共同体和伪共同体相遇，后者总是不堪一击的。如果征服者喜欢无论什么名义的奴隶制，那就是费拉的最大幸运。反之，灭绝就是自然的结局。
 
-牛白 @niubai  
-----
-8:59 AM – 23 Dec 2016
+牛白 @niubai  8:59 AM – 23 Dec 2016
 
 无神论也不能同伊斯兰竞争，所以无神世俗主义的欧洲最后被伊斯兰征服是否不可避免呢？
 
-刘仲敬 @LiuZhongjing  
-----
-9:07 AM – 23 Dec 2016
+刘仲敬 @LiuZhongjing  9:07 AM – 23 Dec 2016
 
 人人都能征服无神论和世俗人文主义，这就是基督教征服罗马的直接原因，不过欧洲还有波兰么⋯⋯
 
-牛白 @niubai  
-----
-9:11 AM – 23 Dec 2016
+牛白 @niubai  9:11 AM – 23 Dec 2016
 
 您这么看好波兰啊，天主教早已不是基督教，教皇已经是耶稣的敌人了啊
 
-刘仲敬 @LiuZhongjing  
-----
-10:19 AM – 23 Dec 2016
+刘仲敬 @LiuZhongjing  10:19 AM – 23 Dec 2016
 
 做为组织资源的宗教和做为宗教的宗教，从来不是一回事。日耳曼异教徒和阿拉伯伊斯兰部落，都比拜占庭的官办教会组织度高。至少对基督教而言，良好的政治秩序只是副产品。
 
-刘仲敬 @LiuZhongjing  
-----
-9:43 AM – 23 Dec 2016
+刘仲敬 @LiuZhongjing  9:43 AM – 23 Dec 2016
 
 （所谓四边形，）用不着划直线，划标记物体。
 
-
 ----
+
+
 11:16 AM – 23 Dec 2016
 
 评论《More Chinese missiles bound for disputed islands》
 
 前夜
 
-
 ----
+
+
 2:17 PM – 23 Dec 2016
 
 夜形国者：歌利亚 克二十四史》——大赣民兵第一砖！ Sea?
@@ -1462,8 +1499,9 @@ Moscow’s power is far less than Washington, but it obtained more respect in Be
 
 Obama was insult in Hangzhou, because he is not good at using the language Beijing can understand. If Trump avoids the same mistake, it is not difficult to use a fait accompli to lay the foundations of long-term peace in the Asia-Pacific.
 
-
 ----
+
+
 5:11 AM – 24 Dec 2016
 
 民族发明的歧途和绝路
@@ -1476,8 +1514,9 @@ Obama was insult in Hangzhou, because he is not good at using the language Beiji
 
 我们只有明白大清天下是一个类似神圣罗马帝国和欧盟的多国体系，才能复原奥斯曼主义者扭曲的历史。
 
-
 ----
+
+
 6:01 AM – 24 Dec 2016
 
 伊朗－突厥文化区伊斯兰化、再封建化、再部落化的历史意义
@@ -1498,8 +1537,9 @@ Obama was insult in Hangzhou, because he is not good at using the language Beiji
 
 外伊朗的人口结构变化往往被解释成城市经济人口衰退和种族替代，但实际上发生的事情更有可能是认同符号的新陈代谢。认同符号的背后，其实是小共同体组织模式的变化。
 
-
 ----
+
+
 10:44 AM – 24 Dec 2016
 
 给时间一场旅行 @mingrong888
@@ -1510,8 +1550,9 @@ Obama was insult in Hangzhou, because he is not good at using the language Beiji
 
 哪里哪里，过度的谦虚不是真理的好朋友。你老的品行才华和勇气，确实堪称中国人的翘楚。各民族在危机时刻，都会暴露自己的真实面目⋯⋯香港民族出了游蕙祯，中国民族出了你老⋯⋯
 
-
 ----
+
+
 2:55 PM – 24 Dec 2016
 
 民族发明学的弗兰肯斯坦时刻
@@ -1530,16 +1571,18 @@ Obama was insult in Hangzhou, because he is not good at using the language Beiji
 
 福尔马林出现在中国四边形的核心，再科学不过了，虽然四边形南部边界，其实还可以向淮河伸出几只伪足⋯⋯
 
-
 ----
+
+
 6:52 PM – 24 Dec 2016
 
 评论《卜睿哲致特朗普公開信 教他一中政策來由》
 
 美国承认恐怖组织对东亚的统治，本身就是不道德的。现在是纠正错误的时候了，否则很难解释美国为什么不能承认伊斯兰国。华盛顿和拉卡建交，对稳定中东局势有莫大的帮助。双方的对抗，会给以色列的安全和繁荣造成极大的风险。
 
-
 ----
+
+
 10:49 AM – 25 Dec 2016
 
 假释期满前夜的恐怖份子和知识分子
@@ -1556,9 +1599,7 @@ Yaxue Cao @YaxueCao
 
 白区党及其统战对象合作，一面企图欺骗罗马父老，声称恐怖组织已经洗心革面，只是转型需要时间而已，一面企图欺骗恐怖组织，声称沐猴而冠就是普世价值，只要避免再次攻打警察局，永远沐猴而冠都没有问题。
 
-恐怖组织从这些混乱的信号中得出结论，罗马只是一个大号的蒋介石而已，可以运用同样卑鄙的手段，首先拥戴和欺骗，最后背叛和推翻，操作方法参见《毛泽东、八个大大、杜特尔特和蒋介石的秘传心法》。（注：见
-----
-1:07 PM – 18 Dec 2016）
+恐怖组织从这些混乱的信号中得出结论，罗马只是一个大号的蒋介石而已，可以运用同样卑鄙的手段，首先拥戴和欺骗，最后背叛和推翻，操作方法参见《毛泽东、八个大大、杜特尔特和蒋介石的秘传心法》。（注：见1:07 PM – 18 Dec 2016）
 
 这样一来，白区党就落到利瓦伊洛夫的狼狈境地，白区党的统战对象同时落到华莱士和谢伟思的狼狈境地。二十年后，新一代知识分子会开始反思第二次万恶的麦卡锡主义。夹边沟的尸骨，其实只是白区党倒霉的余波而已。
 
@@ -1566,8 +1607,9 @@ Yaxue Cao @YaxueCao
 
 知识分子最喜欢装逼和自欺，所以最容易幻想自己得到上帝的特殊恩宠，一直是在空气当中行走，甚至更加狂妄地以为自己就是上帝，有能耐踏水而行。因此每一次翻船的时候，知识分子总是最难抓住为数不多的救生圈。
 
-
 ----
+
+
 12:35 PM – 25 Dec 2016
 
 关于下面材料：
@@ -1578,72 +1620,57 @@ Yaxue Cao @YaxueCao
 
 I am a Bashulian. I stand for Bashlia’s independence. Chinese should stay in their fatherland. Traitor should always be despised.
 
-
 ----
+
+
 6:11 PM – 25 Dec 2016
 
 蒋介石在卢沟桥前夜，大脑里肯定回荡着拳匪的台词：与其苟且图存,贻羞万古, 孰若大张鞑伐,一决雌雄。他是可以怂，但怂了以后，就永远失去了一生只有一次的机会，做永不退休的真正领袖，而不是各派系头目之一。宣传部门是可以把怂粉饰成勃起，忽悠广大人渣，但是各派系不会上当，自然会袁世凯他。相反，他借助日本人打残各派系的基地。重庆虽然民穷财尽，却是他一个人的江山。他想不到共产国际，正如你想不到八个大大。优秀的权术家都是看身边不看远方，有远见的人一般做不了权术高手。今天的选择，同样如此。叫狗不咬，咬狗不叫。惊吓性动作，说明没有危险。重大刺激反而忍气吞声，那才是危险。
 
-
 ----
+
+
 8:59 PM – 25 Dec 2016
 
-刘仲敬 @LiuZhongjing  
-----
-8:59 PM – 25 Dec 2016
+刘仲敬 @LiuZhongjing  8:59 PM – 25 Dec 2016
 
 China is not a nation, is an international system. Nations of inner Asia and East Asia couldn’t love each other, even less become one.
 
-Lee Montr @lee_montr  
-----
-5:56 AM – 26 Dec 2016
+Lee Montr @lee_montr  5:56 AM – 26 Dec 2016
 
 u need replace China into US! US is not a nation, is an international harmful system, though all countries hate
 
-刘仲敬 @LiuZhongjing  
-----
-6:03 AM – 26 Dec 2016
+刘仲敬 @LiuZhongjing  6:03 AM – 26 Dec 2016
 
 Of course. Scumbags hate police.
 
-Lee Montr @lee_montr  
-----
-6:07 AM – 26 Dec 2016
+Lee Montr @lee_montr  6:07 AM – 26 Dec 2016
 
 US is not a police,lol. Harmful system for all other countries
 
-刘仲敬 @LiuZhongjing  
-----
-6:10 AM – 26 Dec 2016
+刘仲敬 @LiuZhongjing  6:10 AM – 26 Dec 2016
 
 Rogue states live their special world. We know.
 
-Lee Montr @lee_montr  
-----
-6:11 AM – 26 Dec 2016
+Lee Montr @lee_montr  6:11 AM – 26 Dec 2016
 
 you also. Have the special attitude.
 
-刘仲敬 @LiuZhongjing  
-----
-6:14 AM – 26 Dec 2016
+刘仲敬 @LiuZhongjing  6:14 AM – 26 Dec 2016
 
 I pity rogue. Merry Christmas…
 
-Lee Montr @lee_montr  
-----
-6:22 AM – 26 Dec 2016
+Lee Montr @lee_montr  6:22 AM – 26 Dec 2016
 
 I’m not Christian. Not all people could be influenced by the stupid one
 
-刘仲敬 @LiuZhongjing  
-----
-6:26 AM – 26 Dec 2016
+刘仲敬 @LiuZhongjing  6:26 AM – 26 Dec 2016
 
 Different people, different world. So interesting!
 
-
 ----
+
+
 5:43 AM – 26 Dec 2016
 
 输入者与输出者
@@ -1662,8 +1689,9 @@ Different people, different world. So interesting!
 
 黄俄如果有什么优越之处，那也无非是亚细亚式的残忍和恩将仇报的卑劣而已。
 
-
 ----
+
+
 7:05 AM – 26 Dec 2016
 
 诸夏的民族意识和作为他者的中国人
@@ -1678,16 +1706,18 @@ Different people, different world. So interesting!
 
 如此周而复始，SM cult不断强化。中国人像巴甫洛夫的狗和洗脑集中营的政治犯一样，成功地实现了逆转，爱和强奸、恨和礼物都形成了条件反射。这种特殊文化，才是中国人的民族标志。Bashulia民族和中国民族的所有邻居一样，自然从鄙视和隔离中国人的必要性当中发现自我。
 
-
 ----
+
+
 8:01 AM – 26 Dec 2016
 
 中国四边形改良版，不过应该把汉中划给Bashulia，把襄阳划给Jinchuria，把莱州湾划给Qizhouria，把苏北鲁南的海岸线划给China，这样更符合地缘条件和文化边界。合肥和寿阳从地缘和安全角度讲，不宜划归China，否则对chianghwlia的安全不利，如果民情语言和文化无法融入chianghwlia，就应该效法维也纳会议，成立奥地利保护的克拉科夫共和国。Nanking如果无法融入Wuyuese，也适用于同样的原理。
 
 中国版图最新改良版，阳谷县是中国的地理中心⋯⋯
 
-
 ----
+
+
 8:55 AM – 26 Dec 2016
 
 Manchurian Admiralty @daasiang
@@ -1698,16 +1728,18 @@ Manchurian Admiralty @daasiang
 
 北戴河核试验基地⋯⋯
 
-
 ----
+
+
 9:54 AM – 27 Dec 2016
 
 《孙文的革命运动与孙中山》,(日)六兴出版,1989年,第168页
 
 犬养等人促成大仓、三井等财团参与援助革命党人所急需的军火。据统计“1911年12 月8日日本的云海丸载枪1万支、佩剑、短枪等约300万吨兵器运送到上海；1912年1月8日日本船巴丸将由大仓集团提供的步枪12000支，机关炮6门，山炮6门及所附弹药运送到南京，1月12日前后日本御代丸将三井物产提供广东新政府的步枪7000支、弹药 4000万发运送到广东。1月25日三井物产提供给汕头革命军及商团的步枪1900支及刺刀、弹药等载米约丸在汕头登陆，2月24日荣城丸载村田枪3万支、弹丸800万发驰入广东虎门”7。这些武器混杂不少日俄战争时期的枪炮，但在尚无第二家外援的情况下，这些援助对于革命军仍然是十分有用的。
 
-
 ----
+
+
 11:11 AM – 27 Dec 2016
 
 Cantonia国殇日公告
@@ -1720,8 +1752,9 @@ Cantonia人民的国殇日文告，将来一定会载入Cantonese中小学课本
 
 上海粤侨商业联合会，广肇公所、潮州会馆、肇庆同乡会、大埔同乡会、香山同乡会、南海会馆番禺会馆、顺德会馆。
 
-
 ----
+
+
 2:18 PM – 27 Dec 2016
 
 Amba daicing gurun is a multinational system which consists of Inner Asian nations and East Asian nations. Manchuria, Mongolia, Geensland, Tibet and Kashgaria are in Inner Asia. Cantonia, Gestneseland, Hokkienam, komeseland, Fuhsiangria, Goetland, Chianghwlia, Jingchuria, Bashulia, China, Qizhouria, Yehetland and The Great Diantnam are in East Asia.
@@ -1734,48 +1767,44 @@ The Great Diantnam：大不列滇
 
 Kashgaria：六城，大致相当于塔里木盆地
 
-
 ----
+
+
 3:02 PM – 27 Dec 2016
 
 Bashulia的宪制和历史
 
 Bashulia在1912年宣布独立后，最初试行Ba-Shu二元联邦制，1916年击溃中国侵略者袁世凯以后，改行防区制。防区制结合了封建主义和联邦主义的优点，有效地遏制了中国侵略者卷土重来的企图。中国领导人蒋介石在共产国际的支持下轻易侵占了Cantonia和Goetland，却无法突破Bashulia军官和绅粮的坚固壁垒。1929年底，国民党有二十六万六千多党员。Bashulia投靠国民党的人数，却只有区区六十六人。国民党在Mongolia的党员，都比Bashulia多。中国侵略者和国际恐怖份子在1935年以后的暴政充分证明，幸福和独立是不可分割的。
 
-注：参见《巴蜀利亚民族简史》（
-----
-4:30 PM – 24 Nov 2016）
-
+注：参见《巴蜀利亚民族简史》（4:30 PM – 24 Nov 2016）
 
 ----
+
+
 7:40 PM – 27 Dec 2016
 
 评论《外交重大突破！交流协会更名「日台交流协会」》
 
 尼克松冲击波⋯⋯我是说川普冲击波⋯⋯这一切仅仅是开始。
 
-
 ----
+
+
 7:31 AM – 28 Dec 2016
 
-【注：前文见
-----
-8:01 AM – 26 Dec 2016】
+【注：前文见8:01 AM – 26 Dec 2016】
 
-DOM戴奥尼夏 @enoya33  
-----
-7:11 AM – 28 Dec 2016
+DOM戴奥尼夏 @enoya33  7:11 AM – 28 Dec 2016
 
 Dayansia应该脱离中国，虽然同样是平原，但海河水系的北京官话区与黄河下游的中原官话区不属于同一个文化区，过去很多时间也不属于中原帝国控制，Dayansia现今盛行罗马天主教，也将是Dayansia复国以后的首要宗教，而中原则是誓反教徒集中地带。
 
-刘仲敬 @LiuZhongjing   
-----
-7:31 AM – 28 Dec 2016
+刘仲敬 @LiuZhongjing   7:31 AM – 28 Dec 2016
 
 自己动手，剿匪复国⋯⋯
 
-
 ----
+
+
 9:04 AM – 28 Dec 2016
 
 民族发明学原理
@@ -1794,14 +1823,16 @@ Dayansia应该脱离中国，虽然同样是平原，但海河水系的北京官
 
 波兰第二共和国容纳乌克兰人，对自己非常不利。乌克兰容纳太多俄罗斯人，对自己同样不利。斯大林和普京实际上帮了波兰和乌克兰的忙，否则民族构建的困难会大得多。
 
-
 ----
+
+
 5:45 PM – 28 Dec 2016
 
 中国给自己设计的边界⋯⋯真 民族发明学
 
-
 ----
+
+
 7:10 PM – 28 Dec 2016
 
 搋思妥洛夫斯基大约是毕不了业了 @Nrutrino
@@ -1812,16 +1843,18 @@ Dayansia应该脱离中国，虽然同样是平原，但海河水系的北京官
 
 三分之一的政权不在我们手里⋯⋯笑什么，这是很严肃的问题⋯⋯关于防止出修正主义的问题，毛主席说：现在世界上有两种共产党。一种是真的，一种是假的。毛主席接着说：我看，我们这个国家有三分之一的权力不掌握在我们手里，掌握在敌人手里。毛主席接过来说：我看这个问题要传下去，传到县，如果出了赫鲁晓夫怎么办？中国出了修正主义的中央，要顶住。
 
-
 ----
+
+
 9:18 AM – 29 Dec 2016
 
 分享《漆黑的灵魂——毛泽东》
 
 撒旦的门徒、Fuhsiangria卖国贼毛泽东
 
-
 ----
+
+
 9:23 AM – 29 Dec 2016
 
 伊斯兰化幕后的国际贸易和国际政治路线图
@@ -1850,14 +1883,16 @@ Dayansia应该脱离中国，虽然同样是平原，但海河水系的北京官
 
 木鹿和康国的景教根据地大部分随着河中拜火教的倒戈，变成了阿巴斯巴格达时代的新穆斯林社会。艾布穆斯林的呼罗珊革命军，主要就是由这些人组成的。灵武和长安的景教部落彷佛太平洋战争爆发后留在上海的英美人，很快就死于统战价值流失综合症。
 
-
 ----
+
+
 10:43 AM – 29 Dec 2016
 
 今天又是一个尤莉卡时刻⋯⋯今后蛋头研究共产主义和东亚近代史不依据《远东的线索》，研究伊斯兰教和内亚史不依据本路线图的，必将越搞越昏，注定一败涂地⋯⋯
 
-
 ----
+
+
 12:18 PM – 29 Dec 2016
 
 中世满洲对中国的秩序输出
@@ -1872,20 +1907,17 @@ Dayansia应该脱离中国，虽然同样是平原，但海河水系的北京官
 
 韩国民族发明家之所以夸张，跟高句丽军部坚持建设东北亚小朝贡体系的原因差不多，都是为了抵抗中国帝国主义的发明，但同时也暴露了自己的发明水平不如欧洲。如果韩国像法兰西扶植波兰捷克一样，支持诸夏独立，效果比自己模仿中国好得多，但日本人都没有学好英格兰，韩国人岂能学好法兰西？欧洲地板高于亚洲天花板，在此第N次得到验证。
 
-明朝之旭 @heavenlq  
-----
-3:01 PM – 29 Dec 2016
+明朝之旭 @heavenlq  3:01 PM – 29 Dec 2016
 
 遣唐使怎么贯彻到这种歧视链中？
 
-刘仲敬 @LiuZhongjing  
-----
-3:25 PM – 29 Dec 2016
+刘仲敬 @LiuZhongjing  3:25 PM – 29 Dec 2016
 
 各自表述，你没有见过日本人的叙事么⋯⋯日出处天子
 
-
 ----
+
+
 4:57 PM – 29 Dec 2016
 
 Issac Fu @Cupreouspea
@@ -1896,8 +1928,9 @@ Issac Fu @Cupreouspea
 
 蜀人安逸，蜀兵脆弱，传统上讲，蜀地都是由蛮族性强的客军保卫的，例如姜维马超，仇池杨氏，播州杨氏，秦良玉之类。天主教的民兵和伊斯兰教的民团只要不形成巨大的领土国家，对Bashulia的安全都是多多益善。陇山汉水河套河西形成众多瑞士山民州，对Bashulia最为有利。
 
-
 ----
+
+
 8:39 AM – 30 Dec 2016
 
 2017节点以后的推演
@@ -1912,52 +1945,42 @@ Issac Fu @Cupreouspea
 
 叙利亚化和诸夏理论有密切联系。无论东南互保还是叙利亚化，最后唯一能够收场的理论都是诸夏。只有在共产主义正确而且胜利，或者共产主义超民族帝国可以顺利转型为民族民主国家的两种情况下，诸夏理论才会失败，不过根据历史积分的原理，这两种免费午餐梦想都不在最低能级，除非水往高处流，永远不会实现。
 
-Jin Roh @Tintin_duan  
-----
-9:28 AM – 30 Dec 2016
+Jin Roh @Tintin_duan  9:28 AM – 30 Dec 2016
 
 但是也有可能是张献忠直通朱重八
 
-刘仲敬 @LiuZhongjing  
-----
-9:30 AM – 30 Dec 2016
+刘仲敬 @LiuZhongjing  9:30 AM – 30 Dec 2016
 
 不可能，有石敬瑭和八个大大在⋯⋯
 
-明朝之旭 @heavenlq  
-----
-11:11 AM – 30 Dec 2016
+明朝之旭 @heavenlq  11:11 AM – 30 Dec 2016
 
 诸献忠继往开来，杀人放火当都督，求诸夏得诸支，符合能级定位……
 
-刘仲敬 @LiuZhongjing  
-----
-1:19 PM – 30 Dec 2016
+刘仲敬 @LiuZhongjing  1:19 PM – 30 Dec 2016
 
 心术不正，自然德匹下。
 
-明朝之旭 @heavenlq  
-----
-2:19 PM – 30 Dec 2016
+明朝之旭 @heavenlq  2:19 PM – 30 Dec 2016
 
 锡安主义的力量太薄弱了，宋渔父那般尚且功败垂成，指望种子还需要更久的时间，急恐有变。或许神意已经彰显：当核心的不可替代性太强时，一切都还太早。
 
-刘仲敬 @LiuZhongjing  
-----
-2:26 PM – 30 Dec 2016
+刘仲敬 @LiuZhongjing  2:26 PM – 30 Dec 2016
 
 水往低处流，不是因为你想水往哪儿流。思维层次混乱，就要自己好好训练。
 
-
 ----
+
+
 1:17 PM – 30 Dec 2016
 
 评论《美学者：美一中政策不是法律无明确定义》
 
 诸夏政策符合海洋自由保护者的长远利益。美国支持一个中国，无异于詹姆斯二世支持路易十四统一欧洲。美国反对台湾独立，无异于查理二世支持路易十四吞并荷兰。斯图亚特王朝不得人心，就是因为他们损害了海上强国的根本利益，期待川普像奥兰治亲王维护欧洲自由一样拨乱反正，维护亚洲的自由或分裂。
 
-
 ----
+
+
 6:03 AM – 31 Dec 2016
 
 youport @iyouport_news
@@ -1968,8 +1991,9 @@ youport @iyouport_news
 
 真 恶贯满盈⋯⋯
 
-
 ----
+
+
 9:40 AM – 31 Dec 2016
 
 解体淆动态 @guizhiyiwan
@@ -1988,8 +2012,9 @@ youport @iyouport_news
 
 今年最好的游戏
 
-
 ----
+
+
 4:25 PM – 31 Dec 2016
 
 WoodenHarp @WoodenHarp
@@ -2000,8 +2025,9 @@ WoodenHarp @WoodenHarp
 
 他老希望神马？八个大大么⋯⋯
 
-
 ----
+
+
 4:48 PM – 31 Dec 2016
 
 撸是一个很有动图感谶语感的汉字，短暂的亢奋和漫长的疲软交替⋯⋯
