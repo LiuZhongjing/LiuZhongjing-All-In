@@ -1,4 +1,4 @@
-# 刘仲敬Twitter言论合集03（1 Jan 2017~8 Feb 2017）
+# 刘仲敬Twitter系列重要讲话03（1 Jan 2017~8 Feb 2017）
 
 Original text
 
