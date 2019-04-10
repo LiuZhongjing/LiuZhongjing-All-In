@@ -1,4 +1,4 @@
-# 刘仲敬Twitter言论合集07（5 Jul 2017~31 Aug 2017）
+# 刘仲敬Twitter系列重要讲话07（5 Jul 2017~31 Aug 2017）
 
 Original text
 
