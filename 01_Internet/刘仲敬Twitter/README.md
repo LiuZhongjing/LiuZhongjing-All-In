@@ -1,7 +1,5 @@
 # 刘仲敬Twitter 
 
-自2016年8月26日起，
-
 更新至2019年8月31日：
 
 [刘仲敬Twitter系列重要讲话19](/01_Internet/刘仲敬Twitter/刘仲敬Twitter系列重要讲话19.md)
