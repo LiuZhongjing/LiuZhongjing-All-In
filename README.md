@@ -2,11 +2,13 @@
 
 ## [刘仲敬访谈系列](https://www.youtube.com/user/maho/videos)
 
-> 訪談[逐字稿](https://medium.com/@ihchentw)
+> 訪談[逐字稿](/04_interview)
 
-## [刘仲敬演讲作品](https://www.youtube.com/playlist?list=PLBPiuae1XK1KypycgYVSxySs5dBf88Px9)
+2019年10月01日 更新： [论大英帝国二战时的外交抉择与东亚洼地自古以来的技术退化模式](/04_interview/刘仲敬访谈056.md)
 
-> 入門十講必讀，精校再版，全套合計24小時，靜心多聽幾遍。一遍即感醍醐灌頂；二遍再次毀你三觀；三遍則通古今之變。認為誇張就問問網友咯！
+## [刘仲敬演讲作品](https://www.youtube.com/playlist?list=PLXTvjPwNKocvFS7I8yEX83kmMp3OC1cYP)
+
+> [入門十講必讀](https://www.youtube.com/playlist?list=PLBPiuae1XK1KypycgYVSxySs5dBf88Px9)，精校再版，全套合計24小時，靜心多聽幾遍。一遍即感醍醐灌頂；二遍再次毀你三觀；三遍則通古今之變。認為誇張就問問網友咯！
 
 
 ## [刘仲敬在全球舆论平台上的系列重要讲话](/01_Internet/README.md)
