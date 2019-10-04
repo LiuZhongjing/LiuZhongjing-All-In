@@ -4,9 +4,20 @@
 
 > 訪談[逐字稿](/04_interview)
 
-2019年10月01日 更新： [论大英帝国二战时的外交抉择与东亚洼地自古以来的技术退化模式](/04_interview/刘仲敬访谈056.md)
+2019年10月01日 更新： [论大英帝国二战时的外交抉择与东亚洼地自古以来的技术退化模式](/LiuZhongjing-All-In/04_interview/刘仲敬访谈056.md)
 
-2019年09月24日 更新： [论中华民族的民族英雄与南粤走私团伙](/04_interview/刘仲敬访谈055.md)
+2019年09月24日 更新： [论中华民族的民族英雄与南粤走私团伙](/LiuZhongjing-All-In/04_interview/刘仲敬访谈055.md)
+
+2019年09月17日 更新： [论宋美龄学与香港南粤的凝结核](/LiuZhongjing-All-In/04_interview/刘仲敬访谈054.md)
+
+2019年09月10日 更新： [论国库止兑](/LiuZhongjing-All-In/04_interview/刘仲敬访谈053.md)
+
+2019年09月03日 更新： [论韩国以及世界边缘的自发秩序消长](/LiuZhongjing-All-In/04_interview/刘仲敬访谈052.md)
+
+2019年08月27日 更新： [袁世凯与诸夏在1915年错过的历史机遇，兼论史达林掌握布尔什维克党的过程](/LiuZhongjing-All-In/04_interview/刘仲敬访谈051.md)
+
+2019年08月20日 更新： [论香港与南粤未来的路径](/LiuZhongjing-All-In/04_interview/刘仲敬访谈050.md)
+
 
 ## [刘仲敬演讲作品](https://www.youtube.com/playlist?list=PLXTvjPwNKocvFS7I8yEX83kmMp3OC1cYP)
 
