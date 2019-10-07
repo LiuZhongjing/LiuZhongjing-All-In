@@ -18,6 +18,25 @@
 
 2019年08月20日 更新： [论香港与南粤未来的路径](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈050.md)
 
+2019年08月13日 更新： [漫谈温和派中国人](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈049.md)
+
+2019年08月06日 更新： [论东亚帝国的财政僵固性](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈048.md)
+
+2019年07月30日 更新： [爱尔兰共和军，安乐死与宗教习惯法，价格双轨制的世界，等级与安全的来源](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈047.md)
+
+2019年07月23日 更新： [论晚清与改革开放后的中国财政体系](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈046.md)
+
+2019年07月16日 更新： [论东南亚与其他杂谈](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈045.md)
+
+2019年07月09日 更新： [论大阪G20峰会后的情势](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈044.md)
+
+2019年07月02日 更新： [论中国与中亚的关系(全文)](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈043.md)
+
+2019年06月25日 更新： [论习近平与改革开放集团都会失败](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈042.md)
+
+2019年06月18日 更新： [论香港独立与诸夏建国](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈041.md)
+
+2019年06月11日 更新： [论六四](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈040.md)
 
 ## [刘仲敬演讲作品](https://www.youtube.com/playlist?list=PLXTvjPwNKocvFS7I8yEX83kmMp3OC1cYP)
 
