@@ -53,6 +53,8 @@
 
 ### [《经与史：华夏世界的历史建构》](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/03_books/经与史/README.md)
 
+### [《民国纪事本末》](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/03_books/民国纪事本末.md)
+
 ## [刘仲敬文选](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/02_articles/README.md)
 		
 ### [《刘仲敬文选》第一卷](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/02_articles/《刘仲敬文选》第一卷.md)
