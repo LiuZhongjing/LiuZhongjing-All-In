@@ -4,6 +4,8 @@
 
 > 訪談[逐字稿](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview)
 
+2019年10月08日 更新： [论费拉资本主义](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈057.md)
+
 2019年10月01日 更新： [论大英帝国二战时的外交抉择与东亚洼地自古以来的技术退化模式](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈056.md)
 
 2019年09月24日 更新： [论中华民族的民族英雄与南粤走私团伙](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/04_interview/刘仲敬访谈055.md)
@@ -122,3 +124,4 @@
 - [拾 刘仲敬：词章之道迄于六朝已备——《玉台新咏》书评](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/02_articles/《刘仲敬文选》第七卷.md#拾-刘仲敬词章之道迄于六朝已备玉台新咏书评)
 
 
+## [刘仲敬诗词](https://github.com/LiuZhongjing/LiuZhongjing-All-In/blob/master/01_Internet/%E6%95%B0%E5%8D%B7%E6%AE%8B%E7%BC%96%E8%AF%97%E8%AF%8D%E9%9B%86.md)
